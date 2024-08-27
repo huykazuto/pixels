@@ -1,1 +1,1 @@
-# pixels
+# https://www.capcut.com/capcut_pc_web/fission_receive?code=g6WtQl35112102&lng=vi-VN
